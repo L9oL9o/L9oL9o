@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Tairov
+- 👋 Hi, I’m Tairov Muhammadsodiq
